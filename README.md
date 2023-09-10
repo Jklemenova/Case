@@ -20,4 +20,4 @@
 
 ## Контактная информация
 - Email: vavilova.julia214@gmail.com
-- LinkedIn: https://www.linkedin.com/in/username/
+Telegram: https://t.me/JLKlimova
